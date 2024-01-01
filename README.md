@@ -1,1 +1,1 @@
-Just a unity coder who shares some of his garbage.
+Adult Game Developer and Rust cultist.
